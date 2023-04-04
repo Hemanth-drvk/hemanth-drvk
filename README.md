@@ -1,5 +1,4 @@
 ### Hi there 👋
-#### GITHUB UPDATING IN PROCESS
 
 I am Rinda Venkata Krishna Hemanth Digamarthi, but don't worry, I won't make you pronounce that entire mouthful. Depending on which part of the world I'm in, people address me as ‘Rinda’ or ‘Hemanth’. Or you can get creative and come up with your own name, as long as it's PG-rated.
 
